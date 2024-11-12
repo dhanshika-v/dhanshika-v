@@ -2,7 +2,7 @@
 
 I'm a Seattle native with roots in Tamil Nadu. I'm fluent in Tamil, and I proudly embrace both my cultural heritage and the vibrant energy of the Pacific Northwest.
 
-I am a rising Junior at the University of Washington majoring in Data Visualization and minoring in Informatics, Applied Computing, and Computer Science. 
+I am a rising Junior at the University of Washington majoring in Data Visualization and minoring in Informatics, Applied Computing, and Computer Science. 👩🏽‍💻💻 
 
 One thing you have to know me is… I LOVE dance*! 💃🏿 I have been dancing classical Bharatanatyam for over 15 years and envision starting my own dance school one day and sharing my passion. I recently performed my graduation recital, which I spent 2 years training for! 
 
