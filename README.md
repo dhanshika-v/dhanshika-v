@@ -1,4 +1,4 @@
-#Hi there, I'm Dhanshika Vijayaraj 👋
+# Hi there, I'm Dhanshika Vijayaraj 👋
 
 I'm a Seattle native with roots in Tamil Nadu. I'm fluent in Tamil, and I proudly embrace both my cultural heritage and the vibrant energy of the Pacific Northwest.
 
